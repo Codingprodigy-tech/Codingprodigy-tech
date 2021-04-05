@@ -9,3 +9,4 @@ Here to try and see about learning git. I'm a huge cotton candy lover. (And YES 
 丂卄卂几ᘜ 卄卂|, 
 卄ㄖ几ᘜ Ҝㄖ几ᘜ, 乇ᘜᘜ 千ㄩ ㄚㄩ几ᘜ...
 千ㄖ尺ㄒㄩ几乇 匚ㄖㄖҜ|乇 卂ㄥ山卂ㄚ丂 山尺ㄖ几ᘜ! 😈
+- Tʜᴇ Dʏɴᴀsᴛʏ Gʀᴏᴜᴘ©️2018
